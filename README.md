@@ -1,5 +1,5 @@
 <!---comentarios--->
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRgTfWbpoT8hamFEcT7n_YinBeen0o-shzXcw&s)
+![](https://media.giphy.com/media/1wANL9kM16LyszJjms/giphy.gif)
 # sobre mim **gabykkj**
 # *gabyzinhakkj*
 <!---especial repositorio do github--->
